@@ -1,5 +1,5 @@
 # Abubakre Niazy | Professional Interpreter & English Specialist
-**CEFR C1 Certified (TOEFL iBT: 100/120)** 📍 Kabul, Afghanistan | 📧 [niazyabubakre@gmail.com](mailto:niazyabubakre@gmail.com) | 💬 [Message on WhatsApp](https://wa.me/93789307276)
+**CEFR C1 Certified (TOEFL iBT: 100/120)** 📍 Kabul, Afghanistan | 📧 [niazyabubakre@gmail.com](mailto:niazyabubakre@gmail.com) | 
 
 ---
 
