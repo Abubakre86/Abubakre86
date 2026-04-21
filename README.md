@@ -43,7 +43,7 @@ Passionate and highly skilled English Language professional with over 6 years of
 ---
 
 ## 📁 Verified Certificates
-- [Diploma](Abubakre's%20Diploma.pdf)
+- 
 - [Certificates](certificates.pdf)
 - [Photo 1](IMG-20260203-WA0010.jpg)
 - [Photo 2](IMG-20260203-WA0011.jpg)
