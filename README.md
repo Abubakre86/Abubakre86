@@ -1,3 +1,4 @@
+<img src="IMG-20260327-WA0000.jpg" alt="Abubakre Niazy" width="200" style="border-radius:50%;">
 # Abubakre Niazy | Professional Interpreter & English Specialist
 **CEFR C1 Certified (TOEFL iBT: 100/120)** 📍 Kabul, Afghanistan | 📧 [niazyabubakre@gmail.com](mailto:niazyabubakre@gmail.com) | 
 
